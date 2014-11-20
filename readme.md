@@ -38,6 +38,8 @@ Drescher Lukas - upoi
 
 Dähler Maurus - X-Hades-X
 
+Detreköy Semian - Thorus5
+
 ## E
 
 Egli Julian - juelu
